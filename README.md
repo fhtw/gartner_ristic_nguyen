@@ -11,7 +11,7 @@ gartner_ristic_nguyen
 > menschliche Dummheit, aber bei dem Universum bin
 > ich mir noch nicht ganz sicher.
 
--Albert Einstein
+-_Albert Einstein_
 *****
 
 sladi schrieb hier
