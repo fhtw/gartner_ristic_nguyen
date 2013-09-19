@@ -12,3 +12,5 @@ gartner_ristic_nguyen
 > ich mir noch nicht ganz sicher.
 - Albert Einstein
 *****
+
+sladi schrieb hier
